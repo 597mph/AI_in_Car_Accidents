@@ -1,1 +1,1 @@
-## Developed by Maxwell Hauser, Alfredo V. and Sidney K.
+## Developed by Maxwell Hauser, Alfredo V. and Sidney L.
