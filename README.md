@@ -1,1 +1,1 @@
-# AI_in_Car_Accidents
+## Developed by Maxwell Hauser, Alfredo V. and Sidney K.
